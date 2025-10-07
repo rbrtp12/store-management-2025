@@ -1,0 +1,1 @@
+# store-management-2025
